@@ -1,1 +1,3 @@
 # Fritzy
+
+its been 4months since we broke up i know na madami akong pag kukulang sayo sana mapatawad mo ako dun hindi ako naging mabuting gf alam ko yan i admit it pasensya kana sakin ha kung mataas pride ko at nakayanan mo sorry sa lahat ng kasalanan ko alam ko hindi mababalik ng sorry yun pero hihingi padin ako ng sorry sayo kung may pag kakataon lang ulit na mag kabalikan tayo aayusin ko na this time wala nang manyayari na ganon i promise pero satingin ko wala na sigurong chance may new gf kana e ano magagawa ko? ikaw na din nag papalayo sakin e ikaw na mismo umiiwas haha masakit yun pero kasalanan ko padin kung bakit gusto na kita makausap ulit tulad ng dati i really missyouu na gusto ko na ibalik lahat ng pagsasama na meron Tayo dati imissyou love😓☹️
